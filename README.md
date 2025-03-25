@@ -23,3 +23,4 @@
 All my project repositories are private to maintain confidentiality and prevent leaks. I prioritize protecting your intellectual property and ensuring that all work remains secure and compliant with copyright policies.
 
 Feel free to reach out—I’m excited to bring your vision to life while safeguarding your ideas! 🚀
+ 
